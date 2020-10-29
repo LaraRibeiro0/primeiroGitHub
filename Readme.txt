@@ -1,0 +1,1 @@
+Este ficheiro tem informacao sobre o projeto que nao sei 
